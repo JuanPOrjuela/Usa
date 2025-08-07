@@ -1,2 +1,0 @@
-# Usa
-Proyectos Sergio Arboleda
